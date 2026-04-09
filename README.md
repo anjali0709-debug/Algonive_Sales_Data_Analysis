@@ -107,7 +107,7 @@ It helps businesses make data-driven decisions related to inventory, marketing, 
 
 ## ▶️ Project Demo
 
-🎥 (Add your LinkedIn video link here after posting)
+🎥 [(Add your LinkedIn video link here after posting)](https://www.linkedin.com/posts/anjali-shinde-121a16255_algonive-algonive-algonive-activity-7448045081393135616-hIFY?utm_source=share&utm_medium=member_desktop&rcm=ACoAAD76AikBiJT2c2h1EK2N50fOeCf15Q3oHnA)
 
 ---
 
